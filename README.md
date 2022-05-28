@@ -54,7 +54,7 @@ Scholarships: Alan Evan Morrison Memorial; Engineering Student Services Stipend 
 ***International Compliance DEI Committee Member**, 2021 – Present*
  * Developed the core tenants about how DEI should be approached and created 7 engaging content pieces for monthly newsletters with a reach across 16 countries and over 600 readers.  
 
-***UNIVERSITY OF NEW MEXICO,**  
+**UNIVERSITY OF NEW MEXICO,**  
 ***Co-Founder & Vice Chair**, ACED@UNM, 2020 – Present*
 * Ideated a vision to collaborate with UNM SOE alumni for developing career guidance programs and other initiatives to produce competitive candidates from current and future UNM Engineering graduates.
 * Delivered 5+ virtual dynamic speaking experiences for junior and senior students at the University of New Mexico, University of Texas El Paso, University of Puerto Rico, and Tennessee State University
