@@ -51,28 +51,28 @@ Scholarships: Alan Evan Morrison Memorial; Engineering Student Services Stipend 
 
 ### Leadership Activities
 **AMAZON EU BUSINESS SARL,**  
-*International Compliance DEI Committee Member, 2021 – Present*
+***International Compliance DEI Committee Member**, 2021 – Present*
  * Developed the core tenants about how DEI should be approached and created 7 engaging content pieces for monthly newsletters with a reach across 16 countries and over 600 readers.  
 
-**ACED@UNM**  
-*Founder & Vice Chair, 2020 – Present*
+***UNIVERSITY OF NEW MEXICO,**  
+***Co-Founder & Vice Chair**, ACED@UNM, 2020 – Present*
 * Ideated a vision to collaborate with UNM SOE alumni for developing career guidance programs and other initiatives to produce competitive candidates from current and future UNM Engineering graduates.
-* Delivered 5+ virtual dynamic speaking experiences for junior and senior students at the University of New Mexico, University of Texas El Paso, University of Puerto Rico, and Tennessee State University.
+* Delivered 5+ virtual dynamic speaking experiences for junior and senior students at the University of New Mexico, University of Texas El Paso, University of Puerto Rico, and Tennessee State University
+***Member**, University of New Mexico Mechanical Engineering Advisory Board, 2018 – Present*
+* Collaborated with an interdisciplinary team to enhance the competitiveness of UNM ME graduates.  
 
-**UNIVERSITY OF NEW MEXICO**  
-*Member, University of New Mexico Mechanical Engineering Advisory Board, 2018 – Present*
-* Collaborated with an interdisciplinary team to enhance the competitiveness of UNM ME graduates.
-Member, Supply Chain Management (SCM) Governing Board, Tennessee State University	
-* Partnered with other industry board members on SCM strategy produce competitive graduates.
+**TENNESSEE STATE UNIVERSITY**  
+***Member**, Supply Chain Management (SCM) Governing Board, 2018 - Present*	
+* Partnered with other industry board members on SCM strategy produce competitive graduates.  
 
 **CUMMINS, INC.**  
-*Cummins TES DEI Lead: Develop, 2019 – 2021*
+***DEI Lead: Develop** Cummins TES, 2019 – 2021*
 * Ideated a data-driven strategy to develop current and future diverse talent within the TES department.
 
-*Cummins Tennessee State University (TSU) Recruiting Co-Lead, 2018 – 2021*
+***Co-Lead**, Cummins Tennessee State University (TSU) Recruiting, 2018 – 2021*
 * Designed a recruiting program that increased engagement by 58% and resulted in 70% offer acceptance. 
 
-*Cummins IBE Consumer Booth Committee, 2015 – 2019*
+***Consumer Booth Committee Member**, Cummins IBE Consumer Booth, 2015 – 2019*
 * Boosted customer engagement by 40% over first two years with activities including science-based projects to varying demographics, realizing an average of 22% growth over the next two years of customer engagement.
 
 ### Languages	
